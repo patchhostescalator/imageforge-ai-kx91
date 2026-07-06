@@ -1,4 +1,4 @@
-# 
+# Gratuit QueryNeural configuration. Téléchargez et installez avec guide étape par étape et haute performance — rapide, sécurisé et facile à utiliser.
 
 
 
